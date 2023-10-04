@@ -10,8 +10,6 @@
 
 - 📫 How to reach me **vivekmodhwadia73@gmail.com**
 
-- ⚡ Fun fact **Don't hire me if your a Messi fan. Ronaldo only!!!**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
